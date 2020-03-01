@@ -25,7 +25,7 @@
 
 1. Sojagranulat und gehackte Zwiebeln mischen
 2. Alles mit der heißen Brühe übergießen und ca. 20min ziehen lassen. Die Brühe darf ruhig etwas stärker sein, ca Faktor 1,3 von der Angabe auf dem Glas.
-3. Paniermehl und Eiersatz dazugeben und alles gut von Hand mehrere Minuten durchkneten. Wenn die Masse zu feucht ist (also wenn beim Bälle formen viel an den Händen kleben bleibt) dann einfach mehr Paniermehl dazugeben. Wenn kein Eiersatz da ist kann man auch 50g Kichererbsenmehl nehmen, aber die Frikadellen werden dann *sehr* bröselig am Ende.
+3. Paniermehl und Eiersatz dazugeben und alles gut von Hand mehrere Minuten durchkneten. Wenn die Masse zu feucht ist (also wenn beim Formen viel an den Händen kleben bleibt) dann einfach mehr Paniermehl dazugeben. Wenn kein Eiersatz da ist kann man auch 50g Kichererbsenmehl nehmen, aber die Frikadellen werden dann *sehr* bröselig am Ende.
 4. Senf und Gewürze unter die Masse mischen.
 5. **Abschmecken!** Die Masse muss auch so einigermaßen gut schmecken, bei Bedarf noch etwas nachwürzen.
 6. Gusseiserne Pfanne mit ca. 50g Fett erhitzen und die Frikadellen braten. Nach jeder Ladung wieder Fett in der Pfanne auffüllen. **Nicht zu heiß machen**, damit es je Seite so 5min braten kann ohne schwarz zu werden.
@@ -55,6 +55,6 @@
 1. Zwiebel und Knoblauch mit dem Öl in einem kleinen Topf kurz andünsten. Nicht zu heiß machen, der Knoblauch darf nicht braun werden - sonst kann man direkt neu anfangen.
 2. Den Rest dazugeben und unter Rühren langsam erhitzen. **Achtung** bei dem Räucheraroma, davon nicht zu viel dazugeben. Lieber zu wenig und am Ende nachwürzen.
 3. Je nach Geschmack Wasser, Whiskey oder Kaffee dazugeben bis die gewünschte Konsistenz erreicht ist.
-4. **Abschmecken!** Bbei Bedarf noch etwas nachwürzen.
+4. **Abschmecken!** Bei Bedarf noch etwas nachwürzen.
 5. Abkühlen lassen und dann essen :)
 
